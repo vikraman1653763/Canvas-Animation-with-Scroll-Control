@@ -7,4 +7,5 @@ https://github.com/user-attachments/assets/4aeba550-ea22-4753-82e9-0bd7b5a2be9b
 
 #MOBILE VIEW
 
-https://github.com/user-attachments/assets/3b88e474-bb10-45f0-b7ed-66e6bda22c01
+
+![WhatsApp Image 2024-12-17 at 09 55 29_495f6c97](https://github.com/user-attachments/assets/f9a525b7-d5dd-435f-85de-1d159149f5df)
