@@ -5,3 +5,6 @@
 
 https://github.com/user-attachments/assets/4aeba550-ea22-4753-82e9-0bd7b5a2be9b
 
+#MOBILE VIEW
+
+https://github.com/user-attachments/assets/3b88e474-bb10-45f0-b7ed-66e6bda22c01
